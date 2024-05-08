@@ -1,1 +1,1 @@
-# yangrake0820.github.io
+# index 완료
